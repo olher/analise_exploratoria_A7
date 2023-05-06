@@ -1,5 +1,5 @@
 <img src="https://logodownload.org/wp-content/uploads/2017/09/mackenzie-logo.png" height="50" width="200" align="left">
-<br><br><br>
+<br><br>
 
 ### Grupo 1 - Women in the Workforce
 
